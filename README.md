@@ -4,3 +4,5 @@ The world's most satisfying XGenerator
 Can't innovate anymore my ass! X's with the size you choose!
 
 Enjoy! or kil
+
+Credits - @Pranavkool for helping me make this possible
